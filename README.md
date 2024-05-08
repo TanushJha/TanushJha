@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on .. python 
 .
 - 📫 How to reach me ... by discord my username  Timeless#2693
-- or by email tanushjha2112@gmai.com
+- or by email tanushjha2112@hotmail.com
 - 
 - 
 
